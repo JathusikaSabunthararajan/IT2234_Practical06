@@ -1,1 +1,11 @@
-# IT2234_Practical06
+![Screenshot (3)](https://github.com/user-attachments/assets/b2b57a28-81a4-43f1-b5d3-65bb08493d91)
+![Screenshot (4)](https://github.com/user-attachments/assets/67b5d10d-7fda-4a10-a0aa-58745e7dfbf7)
+![Screenshot (5)](https://github.com/user-attachments/assets/f90cb5ac-6d22-493d-b2a7-adff0b4c78ae)
+![Screenshot (6)](https://github.com/user-attachments/assets/afe9b2c1-35df-4e45-9afb-6c0b2fd75204)
+![Screenshot (7)](https://github.com/user-attachments/assets/c3c03dbe-55b5-4e18-b96f-cf0707b39b57)
+![Screenshot (8)](https://github.com/user-attachments/assets/5a9e5a9c-21d3-4b11-9925-a7a828168d46)
+![Screenshot (9)](https://github.com/user-attachments/assets/e3228d2c-d3cc-40f2-845e-3b55fa2496dd)
+![Screenshot (10)](https://github.com/user-attachments/assets/66fcf457-d9bf-4b6d-bae5-05868b44ff23)
+![Screenshot (11)](https://github.com/user-attachments/assets/36f5a200-e348-4c0e-a28c-cfc9a4fe1f00)
+![Screenshot (12)](https://github.com/user-attachments/assets/4c6e867e-4388-427a-b6a2-821446f425e1)
+![Screenshot (13)](https://github.com/user-attachments/assets/ae12ebbb-876b-4e20-ba0c-4e33df6cbb8b)
